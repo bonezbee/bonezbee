@@ -1,16 +1,28 @@
-## Hi there 👋
+## >... bonezbee
+=======================
 
-<!--
-**bonezbee/bonezbee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hi!! I'm bassie! but you can also refer to me as elliot!! 
+im 17, i love to draw, and i love my friends!! i am also happily married to my lovely husband koi <3
 
-Here are some ideas to get you started:
+🌸 I love twenty one pilots, RE7-8, dandy's world, and roblox admins of the like!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌼𝙄 𝙬𝙞𝙡𝙡 𝙣𝙤𝙩 𝙖𝙙𝙙 𝙨𝙩𝙧𝙖𝙣𝙜𝙚𝙧𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙛𝙧𝙤𝙢 𝙢𝙮 𝙧𝙚𝙜𝙞𝙨𝙘𝙤𝙪𝙩.🌼
+
+proshippers, darkfic, deaddove, etc. DNI. I do not tolerate you guys at all.
+
+<details>
+  <summary>🍄‍🟫The Megamycete Colony🍄‍🟫 - click to open!</summary></summary>
+  
+  [`Welcome to the family, son.`](https://discord.gg/H7S29TVTXf)
+
+〵〵 13+ , SFW , active regiscout!!
+
+〵〵 Themed around **Resident Evil  7 + 8**
+
+⋆ *__Shop items, fun ranks, K-9's, etc.__*
+⋆ TT/TD understanding, but **not catering!**
+
+`Got a light?`
+ <img width="600" height="240" alt="Untitled159_20260112023413 (1)" src="https://github.com/user-attachments/assets/929b2c0a-f2e9-4824-a399-dc56cae7bb46" />
+
+</details>
