@@ -8,7 +8,7 @@ im 17, i love to draw, and i love my friends!! i am also happily married to my l
 
 🌼𝙄 𝙬𝙞𝙡𝙡 𝙣𝙤𝙩 𝙖𝙙𝙙 𝙨𝙩𝙧𝙖𝙣𝙜𝙚𝙧𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙛𝙧𝙤𝙢 𝙢𝙮 𝙧𝙚𝙜𝙞𝙨𝙘𝙤𝙪𝙩.🌼
 
-proshippers, darkfic, deaddove, etc. DNI. I do not tolerate you guys at all.
+proshippers, deaddove, etc. DNI. I do not tolerate you guys at all.
 
 <details>
   <summary>🍄‍🟫The Megamycete Colony🍄‍🟫 - click to open!</summary></summary>
