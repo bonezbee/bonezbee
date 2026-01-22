@@ -2,7 +2,7 @@
 =======================
 
 hi!! I'm bassie! but you can also refer to me as elliot!! 
-im 17, i love to draw, and i love my friends!! i am also happily married to my lovely husband koi <3
+im 17, i have a hobby in drawing, and i am also happily married to my lovely husband koi <3
 
 🌸 I love twenty one pilots, RE7-8, dandy's world, and roblox admins of the like!
 
