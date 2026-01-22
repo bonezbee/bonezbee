@@ -1,5 +1,5 @@
 ## >... bonezbee
-=======================
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 hi!! I'm bassie! but you can also refer to me as elliot!! 
 im 17, i have a hobby in drawing, and i am also happily married to my lovely husband [koi](https://github.com/biastpd) <3
