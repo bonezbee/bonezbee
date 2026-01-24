@@ -1,14 +1,14 @@
 ## >... bonezbee
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-hi!! I'm griefer! but you can also refer to me as elliot!! i absolutely adore toxicbug/toxicbeetle.
+hi!! I'm 𝙜𝙧𝙞𝙚𝙛𝙚𝙧! but you can also refer to me as elliot!! i absolutely adore toxicbug/toxicbeetle.\
 im 17, i have a hobby in drawing, and i am also happily married to my lovely husband [koi](https://github.com/biastpd) <3
 
-🌸 I love twenty one pilots, RE7-8, dandy's world, and roblox admins of the like!
-
-🌼𝙄 𝙬𝙞𝙡𝙡 𝙣𝙤𝙩 𝙖𝙙𝙙 𝙨𝙩𝙧𝙖𝙣𝙜𝙚𝙧𝙨 𝙪𝙣𝙡𝙚𝙨𝙨 𝙮𝙤𝙪'𝙧𝙚 𝙛𝙧𝙤𝙢 𝙢𝙮 𝙧𝙚𝙜𝙞𝙨𝙘𝙤𝙪𝙩.🌼
+🪲 I love twenty one pilots, RE7-8, dandy's world, and roblox admins of the like!
 
 proshippers, deaddove, etc. DNI. I do not tolerate you guys at all.
+
+[sign my ata!](https://bonezbee.atabook.org)
 
 <details>
   <summary>🍄‍🟫The Megamycete Colony🍄‍🟫 - click to open!</summary></summary>
