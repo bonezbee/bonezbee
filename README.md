@@ -6,7 +6,7 @@
 <p align="center">⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 hi!! I'm 𝙜𝙧𝙞𝙚𝙛𝙚𝙧!! i'm also okay with the name of whoever my pony is!\
-im 17, i have a hobby in drawing, and i am also happily married to my lovely husband [𝙠𝙤𝙞](https://github.com/biastpd) <3
+im 17, i have a hobby in drawing, and i am also happily married to my lovely husband of 4+ years, [𝙖𝙨𝙝𝙡𝙚](https://github.com/biastpd) <3
 
 🪲 I love twenty one pilots, RE7-8, dandy's world, and roblox admins of the like!\
 🌸 I'm okay with C+H, and any interactions! I promise I don't bite, come say hi!
