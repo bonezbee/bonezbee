@@ -2,8 +2,6 @@
 ## >... bonezbee
 <p align="center">⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-icon credit: [rayray](https://github.com/doomtlis)
-
 
 hi!! I'm rocket!! i'm also okay with the name of whoever my pony is!\
 im 18, i have a hobby in drawing
