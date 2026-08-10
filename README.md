@@ -1,14 +1,1 @@
-
-## >... bonezbee
-<p align="center">⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-
-
-hi!! I'm rocket!! i'm also okay with the name of whoever my pony is!\
-im 18, i have a hobby in drawing
-
-📺 I love twenty one pilots, DELTARUNE + UNDERTALE !!, RE7-8, and other medias!
-🌸 I'm okay with C+H, and any interactions! I promise I don't bite, come say hi!
-
-proshippers, deaddove, etc. 𝘿𝙉𝙄. I do not tolerate you guys at all.
-
-**[sign my ata!](https://bonezbee.atabook.org)**
+![KANGEL!](https://64.media.tumblr.com/17a6cecf2b47b85c58b061f7a0ca5458/bd2c07e98ea9bf52-34/s2048x3072/afd5330443e264592ebb26bc38844d0f13948534.gifv)
